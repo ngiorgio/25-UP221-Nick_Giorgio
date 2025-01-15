@@ -5,5 +5,4 @@
 My name is Nick and I'm second year MURP with a concentration in Transportation Policy and Planning. 
 ## Hobbies:
 Currently I play drums in a jazz band with my two close friends but I also enjoy biking, skating and walking!
-![Uploading E3043CD4-92C7-4A7B-8A20-A205DBF92825_1_105_c.jpeg…]()
-
+![E3043CD4-92C7-4A7B-8A20-A205DBF92825_1_105_c](https://github.com/user-attachments/assets/a7819ca6-9d6a-4f96-a688-b640489e19df)
